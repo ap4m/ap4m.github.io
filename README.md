@@ -1,4 +1,4 @@
-# AP4M - A Place For Misfits/Me
+# A Place For Misfits/Me
 
 It doesn't take much to no longer fit into the current tech landscape.
 
