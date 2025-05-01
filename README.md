@@ -18,12 +18,12 @@ We want to find alternatives to the current options for learning, practice, expe
 
 We can only do this by working with real products and customers.
 
-Out love language is what we create. A little part of us lives in our products.
+Our love language is what we create. A part of us lives in our products - quirks and all.
 
 We take risks we can own. We accept a little chaos is the antidote to control. We celebrate our mistakes with cake and cookies.
 
-If we succeed, we are no longer misfits... just us, as we were always intended to be in time and space.
+If we succeed, we are no longer misfits... just us, as we were always intended to be.
 
-We revel in being a work in process (just like this document)
+We revel in being a work in process (just like this document).
 
 ~ Rich and Ray
